@@ -1,0 +1,1 @@
+# stres-u-studentov-42
